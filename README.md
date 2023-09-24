@@ -10,7 +10,7 @@
 The subsequent academic year witnessed James being bestowed with the titles of PARADE magazine's High School Boys Basketball Player of the Year and Gatorade Player of the Year. Following the conclusion of his junior year, James contemplated pursuing a professional basketball career due to his remarkable skills. However, he ultimately decided to prioritize his education and concluded his high school journey with an exceptional senior year on the court, averaging 31.6 points per game and leading his team to their third state title. Furthermore, the St. Vincent-St. Mary High School team achieved the highest national ranking that year. Consequently, James swiftly emerged as one of the prominent players in the National Basketball Association.</p>
   <ul>
     <li><p><a href="https://www.youtube.com/watch?v=QEzt_vH2Yag"
-      target="_blank">Lebron's Highlights</a>
+      target="_blank">Lebron's High School Highlights</a>
     <li><p><a href="https://www.youtube.com/watch?v=PyM98JQCN9c"
       target="_blank">Lebron Vs. Oak Hill</a>
     </p>
