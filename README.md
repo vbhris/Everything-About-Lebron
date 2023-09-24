@@ -58,7 +58,7 @@ Reflecting on his decision to leave Cleveland, James acknowledged the difficulty
   Lebron overtook Kareem Abdul-Jabbar's previous record of 38,387 points in the LA Lakers' defeat to the Oklahoma City Thunder on Tuesday 7 February in the 2022-2023 season.. Although, Lebron and the Lakers are still hunting for another championship this upcoming season despite their loss to the Nuggest in the 2022-2023 Western Conference Finals</p>
 <img class="_r7_Ho" title="Download - 2018 Annual Florida Classics (BCU vs FAMU) at Camping Stadium in Orlando, Florida - November 17, 2018. — Stock Image" width="856" alt="2018 Annual Florida Classics Bcu Famu Camping Stadium Orlando Florida — Stock Photo, Image" height="570" src="https://st4.depositphotos.com/34687568/40528/i/600/depositphotos_405284652-stock-photo-2018-annual-florida-classics-bcu.jpg" style="aspect-ratio: 856 / 570;">
 <ul>
-    <li><p><a href="https://www.youtube.com/watch?v=uHrELOPiyjE"
+  <li><p><a href="https://www.youtube.com/watch?v=uHrELOPiyjE"
       target="_blank">Lebron's Lakers Heat Highlights</a>
       <li><p><a href="https://www.youtube.com/watch?v=LGhx-KZ_LZc"
       target="_blank">The 2020 Lakers Championship</a>
