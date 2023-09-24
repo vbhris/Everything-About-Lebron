@@ -9,7 +9,7 @@
   <div></div>
 The subsequent academic year witnessed James being bestowed with the titles of PARADE magazine's High School Boys Basketball Player of the Year and Gatorade Player of the Year. Following the conclusion of his junior year, James contemplated pursuing a professional basketball career due to his remarkable skills. However, he ultimately decided to prioritize his education and concluded his high school journey with an exceptional senior year on the court, averaging 31.6 points per game and leading his team to their third state title. Furthermore, the St. Vincent-St. Mary High School team achieved the highest national ranking that year. Consequently, James swiftly emerged as one of the prominent players in the National Basketball Association.</p>
   <ul>
-    <li <p><a href="https://www.youtube.com/watch?v=QEzt_vH2Yag"
+    <li<p><a href="https://www.youtube.com/watch?v=QEzt_vH2Yag"
       target="_blank">Lebron's Highlights</a>
     <li><p><a href="https://www.youtube.com/watch?v=PyM98JQCN9c"
       target="_blank">Lebron Vs. Oak Hill</a>
@@ -18,7 +18,7 @@ The subsequent academic year witnessed James being bestowed with the titles of P
 <p>On the 26th of June, 2003, at The Theater at Madison Square Garden in New York City, LeBron James was selected as the first pick in the 2003 NBA Draft, having just graduated from high school. He was drafted by the Cleveland Cavaliers and he became one of the most decorated draft prospects of all-time.</p>
 <img class="_r7_Ho" title="Download - The emblem of the basketball club &quot;Cleveland Cavaliers&quot;. USA — Stock Image" width="856" alt="The emblem of the basketball club &quot;Cleveland Cavaliers&quot;. USA — Stock Photo, Image" height="459" src="https://st2.depositphotos.com/6962450/11756/i/600/depositphotos_117563232-stock-illustration-the-emblem-of-the-basketball.jpg" style="aspect-ratio: 856 / 459;">
     <ul>
-    <li <p><a href="https://www.youtube.com/watch?v=U_Q3ZzrCAeU"
+    <li<p><a href="https://www.youtube.com/watch?v=U_Q3ZzrCAeU"
       target="_blank">Lebron's Being Drafted in 2003</a>
 <h2>Lebron on the Cavs</h2>
 <p>During the 2003-04 season, James achieved a significant milestone as he became the inaugural recipient of the NBA Rookie of the Year Award within the Cavalier franchise. Notably, he also attained the distinction of being the youngest player, at a mere 20 years old, to be bestowed with this esteemed accolade.  Furthermore, James, who maintained an average of 20 points per game during this period, joined an exclusive group of only three rookies who accomplished this remarkable feat, placing him in the esteemed company of Michael Jordan and Oscar Robertson.  Subsequently, James continued to exhibit exceptional prowess in the NBA during the subsequent season, elevating his average points per game to an impressive 27.2. In 2005, he once again etched his name in NBA history by becoming the youngest player to surpass the 50-point mark in a single game.  In 2006, James played a pivotal role in leading his team to victory over the Washington Wizards in the initial round of playoff action. Subsequently, the Cavaliers faced off against the Detroit Pistons in the Eastern Conference semifinals. Although James maintained an average of 26.6 points per game in this postseason matchup, it proved insufficient to secure triumph for his team. 
@@ -45,7 +45,7 @@ Reflecting on his decision to leave Cleveland, James acknowledged the difficulty
 <div></div>
 <p>Following an exceptional regular season performance, wherein James achieved a career-high average of 9.1 assists, he faced a formidable challenge in leading his team out of the first round of the playoffs. In a remarkable display of skill and determination, James delivered a stunning 45-point performance in Game 7, resulting in the defeat of the Pacers. However, the Cleveland Cavaliers were once again pushed to their limits in subsequent rounds by the tenacious Celtics. James, undeterred, scored an impressive 81 points in the final two games, securing victory and securing his eighth consecutive NBA Finals appearance.  The highly anticipated rematch against the Golden State Warriors commenced with a fiercely contested Game 1, largely due to James's extraordinary 51-point outburst. However, Cleveland guard J.R. Smith inexplicably allowed the clock to run out in regulation, resulting in a tied game, before the Warriors ultimately emerged victorious in overtime. This missed opportunity proved to be the Cavaliers' best chance to gain an advantage over their opponents, as the Warriors convincingly won the following three games, ultimately securing their third championship in four years.  Subsequently, amidst speculation regarding his future with the team, James disclosed that he had played the series with a fractured right hand, sustained from punching a whiteboard in frustration following the Game 1 loss.</p>
  <ul>
-    <li <p><a href="https://www.youtube.com/watch?v=8iw-qkYDp4g"
+    <li<p><a href="https://www.youtube.com/watch?v=8iw-qkYDp4g"
       target="_blank">Lebron's Return to the Cavs Highlights (2014-2015)</a>
   <h3>The King's Arrival in Lakerland</h3>
   <p>On July 1, 2018, James made an official announcement regarding his transition to the next phase of his professional career. He did so by signing a substantial 4-year, $153.3 million contract with the Los Angeles Lakers, a renowned franchise that boasts legendary players such as Bryant, Kareem Abdul-Jabbar, and Magic Johnson.  However, the initial positive atmosphere surrounding James' arrival diminished as the Lakers struggled through a challenging period during the middle of the season. This was exacerbated by a 17-game stretch in which they were without their injured star.  As the team continued to face difficulties in late February 2019, James openly criticized his teammates for losing focus due to trade rumors. He expressed his belief that if distractions were still affecting their performance, then they were not suited for this esteemed franchise. He suggested that they should acknowledge their inability to cope with such pressures. 
@@ -58,7 +58,7 @@ Reflecting on his decision to leave Cleveland, James acknowledged the difficulty
   Lebron overtook Kareem Abdul-Jabbar's previous record of 38,387 points in the LA Lakers' defeat to the Oklahoma City Thunder on Tuesday 7 February in the 2022-2023 season.. Although, Lebron and the Lakers are still hunting for another championship this upcoming season despite their loss to the Nuggest in the 2022-2023 Western Conference Finals</p>
 <img class="_r7_Ho" title="Download - 2018 Annual Florida Classics (BCU vs FAMU) at Camping Stadium in Orlando, Florida - November 17, 2018. — Stock Image" width="856" alt="2018 Annual Florida Classics Bcu Famu Camping Stadium Orlando Florida — Stock Photo, Image" height="570" src="https://st4.depositphotos.com/34687568/40528/i/600/depositphotos_405284652-stock-photo-2018-annual-florida-classics-bcu.jpg" style="aspect-ratio: 856 / 570;">
 <ul>
-    <li <p><a href="https://www.youtube.com/watch?v=uHrELOPiyjE"
+    <li<p><a href="https://www.youtube.com/watch?v=uHrELOPiyjE"
       target="_blank">Lebron's Lakers Heat Highlights</a>
       <li <p><a href="https://www.youtube.com/watch?v=LGhx-KZ_LZc"
       target="_blank">The 2020 Lakers Championship</a>
@@ -74,7 +74,7 @@ In 2003, James signed several endorsement deals, including a deal with Nike for 
 <img class="_r7_Ho" title="Download - Street signage board with Nike inscription and logo in the evening. Blurred business district skyscrapers background. Editorial 3D United States — Stock Image" width="856" alt="Street signage board with Nike inscription and logo in the evening. Blurred business district skyscrapers background. Editorial 3D rendering — Stock Photo, Image" height="481" src="https://st3.depositphotos.com/1022914/13025/i/600/depositphotos_130251350-stock-photo-street-signage-board-with-nike.jpg" style="aspect-ratio: 856 / 481;">
 <img style="-webkit-user-select:none; display:block; margin:auto; padding:env(safe-area-inset-top) env(safe-area-inset-right) env(safe-area-inset-bottom) env(safe-area-inset-left);" src="https://thumbs.dreamstime.com/z/perfect-nike-lebron-xv-luxury-black-beige-basketball-sport-shoes-white-krasnoyarsk-russia-december-perfect-nike-lebron-xv-173771714.jpg?w=992">
         <ul>
-    <li <p><a href="https://www.nike.com/w?q=lebron&vst=lebron"
+    <li<p><a href="https://www.nike.com/w?q=lebron&vst=lebron"
       target="_blank">Where You Can Buy His Shoes</a>
 <h3>Lebron's Impact On the Community</h3>
       Lebron is an inspiration to the youth and he always tries his best to give back. He truly is a hero and a great model for the upcoming generation. He tactfully uses his fame, power and resources to carry out charitable ventures around the world. 
