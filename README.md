@@ -55,12 +55,33 @@ Reflecting on his decision to leave Cleveland, James acknowledged the difficulty
 <div></div>
 <p>LeBron James played a pivotal role in securing the Los Angeles Lakers' 17th NBA championship title with a commanding 106-93 victory over the Miami Heat in Game 6 of the 2020 NBA Finals. This triumph marks James' fourth championship ring.   Throughout the series, James exhibited exceptional performance, averaging 29.8 points, 11.8 rebounds, and 8.5 assists, leading the Lakers in all three categories. In the final game, he contributed 28 points, 14 rebounds, and 10 assists, extending his NBA Finals record of 11 triple-doubles. Despite the loss, his 40-point, 13-rebound, and seven-assist performance in Game 5 was arguably one of his most outstanding performances on this stage.   In recognition of his exceptional efforts, James was named Finals MVP for the fourth time in his career, placing him second only to Michael Jordan in NBA history. He is also the first player to win this honor with three different teams and has joined Jordan as the only two players to win at least four MVPs and four Finals MVPs.
   <div></div>
-  Lebron and the Lakers are still hunting for another championship this upcoming season despite their loss to the Nuggest in the 2022-2023 Western Conference Finals</p>
+  Lebron overtook Kareem Abdul-Jabbar's previous record of 38,387 points in the LA Lakers' defeat to the Oklahoma City Thunder on Tuesday 7 February in the 2022-2023 season.. Although, Lebron and the Lakers are still hunting for another championship this upcoming season despite their loss to the Nuggest in the 2022-2023 Western Conference Finals</p>
 <img class="_r7_Ho" title="Download - 2018 Annual Florida Classics (BCU vs FAMU) at Camping Stadium in Orlando, Florida - November 17, 2018. — Stock Image" width="856" alt="2018 Annual Florida Classics Bcu Famu Camping Stadium Orlando Florida — Stock Photo, Image" height="570" src="https://st4.depositphotos.com/34687568/40528/i/600/depositphotos_405284652-stock-photo-2018-annual-florida-classics-bcu.jpg" style="aspect-ratio: 856 / 570;">
 <ul>
     <li <p><a href="https://www.youtube.com/watch?v=uHrELOPiyjE"
       target="_blank">Lebron's Lakers Heat Highlights</a>
       <li <p><a href="https://www.youtube.com/watch?v=LGhx-KZ_LZc"
       target="_blank">The 2020 Lakers Championship</a>
+    <h3>Lebron's Acolades and Achievements</h3>
+  <img src="https://fadeawayworld.net/.image/t_share/MTk0ODEyMDExMTA2ODA1Mjcy/321897761_1201642214101924_2660601718952425161_n.jpg" jsaction="VQAsE" class="r48jcc pT0Scc iPVvYb" style="max-width: 1200px; height: 588px; margin: 0px; -webkit-user-select: text; -webkit-user-drag: auto; width: 784px;" alt="LeBron James' Best Accomplishments Per Season: King James Is The Greatest  Player Of The 21st Century - Fadeaway World" jsname="kn3ccd" aria-hidden="false">
+<h3>Lebron's Family Life</h3>
+On January 1, 2012, Lebron proposed to his high school sweetheart, Savannah Brinson. The couple married in a private ceremony with about 200 guests in San Diego on September 14, 2013. They have three kids: Lebron James Jr (Bronny), Bryce James, and Zhuri James. The two sons Bryce and Bronny, both want to play on the NBA level with Lebron.
+        <div></div>
+<img style="-webkit-user-select:none; display:block; margin:auto; padding:env(safe-area-inset-top) env(safe-area-inset-right) env(safe-area-inset-bottom) env(safe-area-inset-left);" src="https://thumbs.dreamstime.com/z/small-foot-premiere-los-angeles-sep-lebron-james-family-village-theater-september-westwood-ca-194369671.jpg?w=360">
+<h3>Nike Endorsement</h3>
+In 2003, James signed several endorsement deals, including a deal with Nike for $90 million that could net him over $1 billion over his lifetime. With Nike he has his own signature shoe line. Other endorsements include Intel, Verizon, Coca-Cola, Beats by Dre and Kia Motors.
+        <div></div>
+<img class="_r7_Ho" title="Download - Street signage board with Nike inscription and logo in the evening. Blurred business district skyscrapers background. Editorial 3D United States — Stock Image" width="856" alt="Street signage board with Nike inscription and logo in the evening. Blurred business district skyscrapers background. Editorial 3D rendering — Stock Photo, Image" height="481" src="https://st3.depositphotos.com/1022914/13025/i/600/depositphotos_130251350-stock-photo-street-signage-board-with-nike.jpg" style="aspect-ratio: 856 / 481;">
+<img style="-webkit-user-select:none; display:block; margin:auto; padding:env(safe-area-inset-top) env(safe-area-inset-right) env(safe-area-inset-bottom) env(safe-area-inset-left);" src="https://thumbs.dreamstime.com/z/perfect-nike-lebron-xv-luxury-black-beige-basketball-sport-shoes-white-krasnoyarsk-russia-december-perfect-nike-lebron-xv-173771714.jpg?w=992">
+        <ul>
+    <li <p><a href="https://www.nike.com/w?q=lebron&vst=lebron"
+      target="_blank">Where You Can Buy His Shoes</a>
+<h3>Lebron's Impact On the Community</h3>
+      Lebron is an inspiration to the youth and he always tries his best to give back. He truly is a hero and a great model for the upcoming generation. He tactfully uses his fame, power and resources to carry out charitable ventures around the world. 
+      <div></div>
+      <img class="_r7_Ho" title="Download - NBA superstar LeBron James interacts with young kids during a fan meeting of the Rise 2014 LeBron James Basketball Tour in Hong Kong, China, 23 July 2014. — Stock Image" width="815" alt="Nba Superstar Lebron James Interacts Young Kids Fan Meeting Rise — Stock Photo, Image" height="572" src="https://st4.depositphotos.com/21607914/24154/i/600/depositphotos_241545558-stock-photo-nba-superstar-lebron-james-interacts.jpg" style="aspect-ratio: 815 / 572;">
+      <ul>
+<li><p><a href="https://www.nytimes.com/2021/03/09/business/lebron-james-community-development.html"
+      target="_blank">New York Times on Lebron Giving Back</a>
 
 
