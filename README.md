@@ -59,7 +59,7 @@ Reflecting on his decision to leave Cleveland, James acknowledged the difficulty
 <img class="_r7_Ho" title="Download - 2018 Annual Florida Classics (BCU vs FAMU) at Camping Stadium in Orlando, Florida - November 17, 2018. — Stock Image" width="856" alt="2018 Annual Florida Classics Bcu Famu Camping Stadium Orlando Florida — Stock Photo, Image" height="570" src="https://st4.depositphotos.com/34687568/40528/i/600/depositphotos_405284652-stock-photo-2018-annual-florida-classics-bcu.jpg" style="aspect-ratio: 856 / 570;">
 <ul>
   <li><p><a href="https://www.youtube.com/watch?v=uHrELOPiyjE"
-      target="_blank">Lebron's Lakers Heat Highlights</a>
+      target="_blank">Lebron's Lakers Highlights</a>
       <li><p><a href="https://www.youtube.com/watch?v=LGhx-KZ_LZc"
       target="_blank">The 2020 Lakers Championship</a>
     <h3>Lebron's Acolades and Achievements</h3>
